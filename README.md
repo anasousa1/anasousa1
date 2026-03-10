@@ -1,5 +1,5 @@
 - 👋 oi, eu sou @anasousa1
-- 👀 estouinteressado em viver a vida sem preucupação
+- 👀 estou interessado em viver a vida sem preucupação
 - 🌱 atualmente estou cursando o ensino medio
 - 💞️ Procuro colaborar em projetos 
 - 📫 pode entra em contato comigo via gmail @0001093462577sp@al.educacao.sp.gov.br
